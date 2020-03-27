@@ -1,3 +1,3 @@
 # Flow3Week1
 
-Status
+## Status på Day2 (Tirsdag).
